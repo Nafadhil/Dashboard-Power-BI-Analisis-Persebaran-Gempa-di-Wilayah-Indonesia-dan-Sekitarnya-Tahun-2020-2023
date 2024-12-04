@@ -1,0 +1,1 @@
+# Dashboard-Power-BI-Analisis-Persebaran-Gempa-di-Wilayah-Indonesia-dan-Sekitarnya-Tahun-2020-2023
